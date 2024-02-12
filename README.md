@@ -6,7 +6,7 @@ Looking for a way to get ahead in the popular educational game, Blooket? Well, y
 
 ![Blooket Cheats](https://github.com/blookethacksgithub/coins/assets/135044106/d0cf2dab-7897-4633-b927-02e0ce3974ad)
 
-# [**Unlock your potential with the ultimate Blooket Cheats, Tips and Tricks Guide - Level up your knowledge and dominate the game! [CLICK HERE]**](https://gamewinmill.com/blooketceats)
+# [**Unlock your potential with the ultimate Blooket Cheats, Tips and Tricks Guide - Level up your knowledge and dominate the game! [CLICK HERE]**](https://linktr.ee/WinCheat)
 
 ## Table of Contents
 
